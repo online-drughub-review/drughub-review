@@ -30,4 +30,6 @@ Before exploring this darknet marketplace, prioritize your security and take nec
 
 
 
-Update:  08/23/2025 url is live and functioning
+
+
+Update:  Friday 12 September 2025
