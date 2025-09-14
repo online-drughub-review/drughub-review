@@ -4,12 +4,12 @@ DrugHub, a prominent darknet marketplace, attracts users seeking anonymous goods
 
 ## DrugHub: Market URL:
 
-http://7srgawrj4hyjbnrnfhkewds4iu4fu6poypbyap6gwptcasnpwzgjjyyd.onion
+http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion
 
-[<img src="/resources/document.webp" width="200">](http://7srgawrj4hyjbnrnfhkewds4iu4fu6poypbyap6gwptcasnpwzgjjyyd.onion)
+[<img src="/resources/document.webp" width="200">](http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion)
 
 
-<a href="http://7srgawrj4hyjbnrnfhkewds4iu4fu6poypbyap6gwptcasnpwzgjjyyd.onion"><img src="/resources/tall.webp" alt="image" style="max-width: 100%;"><a>
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/resources/tall.webp" alt="image" style="max-width: 100%;"><a>
 
 This is an educational platform provided solely for informational purposes, offering a peek into the complexities of the dark web. We don't collect commissions or kickbacks from market affiliate links. We are not connected to any legal entities and do not support or promote any illegal activities. This DrugHub review does not endorse illegal actions.
 
@@ -21,8 +21,8 @@ To avoid potential scams, always use only trusted DrugHub links and mirrors. Mir
 
 Before exploring this darknet marketplace, prioritize your security and take necessary precautions when browsing and making purchases. This DrugHub review emphasizes responsible exploration.
 
-<a href="http://7srgawrj4hyjbnrnfhkewds4iu4fu6poypbyap6gwptcasnpwzgjjyyd.onion"><img src="/resources/hint.webp" alt="image" style="max-width: 100%;"><a>  
-<a href="http://7srgawrj4hyjbnrnfhkewds4iu4fu6poypbyap6gwptcasnpwzgjjyyd.onion"><img src="/resources/clip.webp" alt="image" style="max-width: 100%;"><a>
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/resources/hint.webp" alt="image" style="max-width: 100%;"><a>  
+<a href="http://drughub2pwzkzjtcuarf5p2f6sxmh7tjuiyw4uwcah4hjtf47oipciad.onion"><img src="/resources/clip.webp" alt="image" style="max-width: 100%;"><a>
 
 
 
@@ -32,4 +32,6 @@ Before exploring this darknet marketplace, prioritize your security and take nec
 
 
 
-Update:  Friday 12 September 2025
+
+
+Update:  Sunday 14 September 2025
