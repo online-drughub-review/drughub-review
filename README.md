@@ -36,4 +36,6 @@ Before exploring this darknet marketplace, prioritize your security and take nec
 
 
 
-Update:  18.09.2025
+
+
+Update:  01.10.2025
